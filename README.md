@@ -3,7 +3,7 @@
 - 🌱 I'm currently learning mobile
 - 💞️ I'm looking to collaborate on all levels
 - 📫 How to reach me via my email addresses
-- 😄 Pronouns: 🤷‍♀️😁
+- 😄 Pronouns: she
 - ⚡ Fun fact: 😀🤷‍♀️
 
 <!---
